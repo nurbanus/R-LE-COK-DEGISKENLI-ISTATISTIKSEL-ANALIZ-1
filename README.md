@@ -1,1 +1,1 @@
-file:///C:/Users/HANDENUR/OneDrive/Resimler/Taramalar/cokdegcoz/cokdeg%C4%B1skenlivizeodev1.html
+https://drive.google.com/file/d/1LJESJxmiCsgT5L80WFIDYGx1YahjxzG7/view?usp=drive_link
